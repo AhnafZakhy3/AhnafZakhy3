@@ -28,7 +28,7 @@ I am an 11th-grade Vocational High School (SMK) student with a strong passion fo
 ### 📫 Let's Connect!
 
 *(Add your social links here)*
-* **Email:** [ahnafzakhy@example.com](mailto:ahnafzakhy@example.com)
+* **Email:** [ahnafzakhy@gmail.com](mailto:ahnafzakhy@gmail.com)
 
 ---
 ⭐️ *From building robust inventory databases to analyzing file hex signatures, I'm always ready for the next challenge!*
