@@ -27,7 +27,6 @@ I am an 11th-grade Vocational High School (SMK) student with a strong passion fo
 
 ### 📫 Let's Connect!
 
-*(Add your social links here)*
 * **Email:** [ahnafzakhy@gmail.com](mailto:ahnafzakhy@gmail.com)
 
 ---
